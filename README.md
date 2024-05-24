@@ -1,4 +1,5 @@
-![image](https://github.com/Anshika32/Academic_Aesthetics/assets/121334039/4facaae6-b812-448e-9b47-f60894ee31ce)
+![image](https://github.com/Anshika32/Academic_Aesthetics/assets/121334039/de68de0d-e356-4644-b0cb-d8f06a853aba)
+
 
 # Portfolio Website
 
